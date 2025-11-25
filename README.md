@@ -1,1 +1,4 @@
-# Tool-t-ng-c-u-c-fivem-server-L-Qu-
+## Discord
+```
+https://discord.gg/rb568u7ee7
+```
